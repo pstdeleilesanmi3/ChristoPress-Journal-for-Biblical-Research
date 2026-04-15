@@ -1,2 +1,2 @@
-# ChristoPress-Centre-for-Biblical-Research-and-Intellectual-Transformation
-Changing the World through the Word
+# ChristoPress-Institute-of-Biblical-Research-Studies-and-Theological-Education
+That We May Learn and Know Him Better
